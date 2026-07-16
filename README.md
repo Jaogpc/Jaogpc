@@ -1,4 +1,4 @@
-# Olá! Me Chamo João Gabriel Previdente Costa 👋
+# Olá! Sou João Gabriel 👋
 
 ---
 
